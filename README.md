@@ -7,5 +7,5 @@ Twitter: @MMTmacrotrader
 
 Youtube: https://www.youtube.com/@MMTMacroTrader
 
-Research/Analysis: Patreon.com/mmtmacrotrader
+Research/Analysis: https://www.Patreon.com/mmtmacrotrader
 
